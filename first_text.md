@@ -14,4 +14,4 @@
 - Nome Deris. Glad kompar ewil.
 - Rras! Kal?
 - Es.
-- As, dri aryi, terog
+- As, dri aryi, tero
