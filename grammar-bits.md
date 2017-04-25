@@ -9,7 +9,7 @@ Kois verbs are simple, perhaps too simple. There are four tenses: imperative, pa
 
 ## Examples: 
 
-ekompar - I buy
-eWilBa - I wanted
-du Kompar - You are buying
+- ekompar - I buy
+- eWilBa - I wanted
+- du Kompar - You are buying
 
