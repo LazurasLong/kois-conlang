@@ -11,7 +11,7 @@
 
 - Eo
 - Eo, yi benwen la ferrial Krasnidrak
-- Nome Deris. Glad kompar evreo.
+- Nome Deris. Glad kompar ewil.
 - Rras! Kal?
 - Es.
 - As, dri aryi, terog
