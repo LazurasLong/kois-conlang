@@ -9,4 +9,9 @@
 
 ## Kois
 
-rr
+- Eo
+- Eo, yi benwen la ferrial Krasnidrak
+- Nome Deris. Glad kompar evreo.
+- Rras! Kal?
+- Es.
+- As, dri aryi, terog
